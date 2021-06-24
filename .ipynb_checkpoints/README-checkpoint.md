@@ -1,3 +1,3 @@
 # MathVGerrmandering_CMAT_2021
 
-Trace Patterson was here
+Hello
